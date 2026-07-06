@@ -4,7 +4,7 @@
 
 > [!CAUTION]
 > **Please DNI if:**
-> > You are a Proshipper, Pro-contact or you are under the age of 13
+> > You are a Proshipper • you are under the age of 13
 <!-- ✦┉﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌┉✦ -->
 ![An image of red flowers](https://github.com/DocHale/DocHale/blob/main/QuarterWidth.png)
 <!-- ✦┉﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌┉✦ -->
