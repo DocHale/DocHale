@@ -2,7 +2,6 @@
 
 $${\color{red}✦}$$ C+H is encouraged, even if not in my name\
 $${\color{red}✦}$$ Covering is preferred to only be done by friends\
-$${\color{red}✦}$$ INT freely! however, I might be little awkward 
 
 ---
 
