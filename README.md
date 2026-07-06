@@ -4,6 +4,6 @@
 
 > [!CAUTION]
 > **Please DNI if:**
-> > You are a Proshipper, Pro-contact or Loli/Shotacon
+> > You are a Proshipper, Pro-contact, Loli/Shotacon or you are under the age of 13
 
 ![A smaller image of red flowers](https://github.com/DocHale/DocHale/blob/main/QuarterWidth.png)
