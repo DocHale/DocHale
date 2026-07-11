@@ -10,6 +10,8 @@ $${\color{red}❏}$$ fandoms:
 $${\color{red}❏}$$ information:
 > $${\color{red}✦}$$ C+H is encouraged when alone, even if not in my name\
 > $${\color{red}✦}$$ Covering is preferred to only be done by friends\
+> · · ─ · · ─ · ·\
+> $${\color{red}✦}$$ I tend to become quiet around strangers, especially when they share my major interests (LCB LobCorp & BB). The former is from shyness, the latter due to excitement. I'm A—okay, I'll just be listening. That is to say; SHARED INTERESTS YAP AT ME! I might not respond but I will smile!\
 · · ─ ·𖥸· ─ · ·
 
 ---
