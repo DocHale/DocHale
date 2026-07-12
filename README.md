@@ -4,7 +4,7 @@
 ---
 
 $${\color{red}❏}$$ fandoms:
-> $${\color{red}✦}$$ Limbus Company • Lobotmy Corporation • Black Butler • Deltarune • Gachiakuta • Nine Sols\
+> $${\color{red}✦}$$ Limbus Company • Lobotmy Corporation • Black Butler • Deltarune • Gachiakuta\
 · · ─ ·𖥸· ─ · ·
 
 $${\color{red}❏}$$ information:
