@@ -9,9 +9,13 @@ $${\color{red}❏}$$ fandoms:
 
 $${\color{red}❏}$$ information:
 > $${\color{red}✦}$$ C+H is encouraged when alone, even if not in my name\
-> $${\color{red}✦}$$ Covering is preferred to only be done by friends\
+> $${\color{red}✦}$$ Covering is preferred to only be done by friends, but I won't get mad at you\
 > · · ─ · · ─ · ·\
-> $${\color{red}✦}$$ I cannot act in character, if you make me act in character I will scream\
+> $${\color{red}✦}$$ If you talk to me in public chat and I don't respond, ask me in whispers! I just didn't see it :-)\
+>  $${\color{red}✦}$$ I cannot act in character, if you make me act in character I will scream\
+> $${\color{red}✦}$$ Don't be afraid to talk! If I dont have ‘AFK’ in my name, then i'm available\
+> · · ─ · · ─ · ·\
+> $${\color{red}✦}$$  Sign my Ata, if you wish!\
 · · ─ ·𖥸· ─ · ·
 
 ---
