@@ -4,7 +4,7 @@
 ---
 
 $${\color{red}❏}$$ fandoms:
-> $${\color{red}✦}$$ Limbus Company • Lobotmy Corporation • Black Butler • Deltarune • Nine Sols\
+> $${\color{red}✦}$$ Library Of Ruina, Lobotomy Corporation, Limbus Company • Black Butler • Deltarune • Nine Sols\
 · · ─ ·𖥸· ─ · ·
 
 $${\color{red}❏}$$ information:
