@@ -4,7 +4,7 @@
 ---
 
 $${\color{red}❏}$$ fandoms:
-> $${\color{red}✦}$$ Library Of Ruina, Lobotomy Corporation, Limbus Company • Black Butler • Deltarune • Nine Sols\
+> $${\color{red}✦}$$ Library Of Ruina, Lobotomy Corporation, Limbus Company • Deltarune • Nine Sols\
 · · ─ ·𖥸· ─ · ·
 
 $${\color{red}❏}$$ information:
@@ -16,6 +16,7 @@ $${\color{red}❏}$$ information:
 > $${\color{red}✦}$$ Don't be afraid to talk! If I dont have ‘AFK’ in my name, then i'm available\
 > · · ─ · · ─ · ·\
 > $${\color{red}✦}$$  Sign my Ata, if you wish!\
+> $${\color{red}✦}$$  Check out my StrawPage, it has cool things I promise!!!!\
 · · ─ ·𖥸· ─ · ·
 
 ---
