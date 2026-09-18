@@ -23,7 +23,7 @@
 ⠀
   <details>
     <summary>$${\color{#D9CEC3}|}$$ Additional</summary>
-    $${\color{#D9CEC3}|}$$ Primarily in Regiments $${\color{red}•}$$ Free to Int anytime $${\color{red}•}$$ Please don’t come up to me and expect me to act in character just because I am wearing a cos
+    $${\color{#D9CEC3}|}$$ Primarily in Regiments $${\color{red}•}$$ Free to Int anytime $${\color{red}•}$$ Please don’t expect me to act in character just because I am wearing a cos
   </details>
 
   <details>
