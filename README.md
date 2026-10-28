@@ -8,7 +8,7 @@
 ---
 ```🗞️``` ```About Operator–09```
 > ︱I’m **$${\color{#1A9AAD}𝖣𝗋. 𝖧𝖺𝗅𝖾}$$**, *IF Incorporated’s* very own **$${\color{#5A5D63}[𝖱𝖤𝖣𝖠𝖢𝖳𝖤𝖣]}$$**\
-> ︱Outside of my usual duties, I like to partake in **HTML+CSS**, **drawing**, long walks on the beach and class action lawsuits.
+> ︱Outside of my usual duties, I like to partake in: **HTML+CSS**, **drawing**, long walks on the beach and class action lawsuits.
 
 ---
 ```🔎``` ```What is ORO?```
