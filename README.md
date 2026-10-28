@@ -19,7 +19,7 @@
 ---
 ```⚙️``` ```Do No Interact```
 > ︱**Proship/darkship**\
-> ︱People who hate regiments in public-chat ... right next to regiments.
+> ︱People who talk bad about regiments in public-chat ... right next to regiments.
 
 ---
 
