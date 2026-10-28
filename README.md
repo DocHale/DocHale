@@ -17,7 +17,7 @@
 > ︱... that’s one of the nicer descriptions.
 
 ---
-```⚙️``` ```Do No Interact```
+```⚙️``` ```Do Not Interact```
 > ︱**Proship/darkship**\
 > ︱People who talk bad about regiments in public-chat ... right next to regiments.
 
