@@ -3,8 +3,8 @@
 
 ---
 **About Operator–09**
-> I’m **Dr. Hale**, *IF Incorporated’s* very own **[REDACTED]**.\
-> Outside of my usual duties, I like to partake in **HTML+CSS**, **drawing**, long walks on the beach and drinking water from fire hydrants.
+> I’m **Dr. Hale**, *IF Incorporated’s* very own **[REDACTED]**\
+> Outside of my usual duties, I like to partake in **HTML+CSS**, **drawing**, long walks on the beach and civil lawsuits.
 
 ---
 **What is ORO**
