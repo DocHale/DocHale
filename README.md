@@ -1,6 +1,9 @@
 <div align="left">
+  
 ### $${\color{#1A9AAD}𝖱𝖾𝖼𝗈𝗋𝖽𝗂𝗇𝗀 𝖱𝖾𝗍𝗋𝗂𝖾𝗏𝖾𝖽}$$
-<sup>$${\color{#8B8C8C}28/10/20XX · 17:24 · Sector-B IF.}$$</sup>
+
+<sup>$${\color{#8B8C8C}28/10/20𝖷𝖷 · 17:24 · 𝖲𝖾𝖼𝗍𝗈𝗋-𝖡 𝖨𝖥.}$$</sup>
+
 </div>
 
 ---
