@@ -12,7 +12,7 @@
 
 ---
 ```🔎``` ```What is ORO?```
-> ︱*“IF Inc”* and *“OR Operation”* are organisations similar to the **SCP Foundation**, however — instead of containing typical anomalies, they research strange diseases called *‘Ironics’*. They can affect anyone and you *really* don’t want one. Unfortunately, most of their operators have an ironic; we recruit those who are inflicted. half to help, half to hide. But in my opinion it just leads to more complications.
+> ︱*“IF Inc”* and *“OR Operation”* are organisations similar to the **SCP Foundation**, however — instead of containing typical anomalies, they research strange diseases called *‘Ironics’*. They can affect anyone and you *really* don’t want one. Unfortunately, most of their operators have an ironic; we recruit those who are inflicted. Half to help, half to hide. But in my opinion it just leads to more complications.
 > 
 > ︱... that’s one of the nicer descriptions.
 
