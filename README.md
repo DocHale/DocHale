@@ -8,9 +8,6 @@
 
 ---
 **What is ORO**
-> *“IF Inc”* and *“OR Operation”* are organisations similar to the SCP Foundation; **however** — instead of containing typical anomalies, they research strange diseases called *‘Ironics’*. They can affect anyone and you *really* don’t want one.\
-> Unfortunately most of their workers, *“Operators”* have an ironic, we recruit those who are inflicted.
+> *“IF Inc”* and *“OR Operation”* are organisations similar to the SCP Foundation; **however** — instead of containing typical anomalies, they research strange diseases called *‘Ironics’*. They can affect anyone and you *really* don’t want one. Unfortunately most of their workers, *“Operators”* have an ironic, we recruit those who are inflicted; it just leads to more complications, though.
 > 
-> ... this is one of the nicer descriptions of course.
-
-> If you're interested, you may inquire about *IFI/ORO*, I'd love to answer.
+> ... that’s one of the nicer descriptions.
