@@ -8,6 +8,11 @@
 
 ---
 ```🔎``` ```What is ORO?```
-> ︱*“IF Inc”* and *“OR Operation”* are organisations similar to the SCP Foundation; **however** — instead of containing typical anomalies, they research strange diseases called *‘Ironics’*. They can affect anyone and you *really* don’t want one. Unfortunately most of their workers, *“Operators”* have an ironic, we recruit those who are inflicted; it just leads to more complications, though.
+> ︱*“IF Inc”* and *“OR Operation”* are organisations similar to the **SCP Foundation**; however — instead of containing typical anomalies, they research strange diseases called *‘Ironics’*. They can affect anyone and you *really* don’t want one. Unfortunately most of their employees — Operators, have an ironic; we recruit those who are inflicted. It just leads to more complications, though.
 > 
 > ︱... that’s one of the nicer descriptions.
+
+---
+```⚙️``` ```Do No Interact```
+> ︱**Proship/darkship**\
+> ︱People who hate regiments in public-chat ... right next to regiments.
