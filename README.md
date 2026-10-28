@@ -1,4 +1,4 @@
-### Recording Retrieved.
+### $${\color{red}Recording Retrieved.}$$
 <sup>28/10/20XX · 17:24 · Sector-B IF.</sup>
 
 ---
@@ -17,8 +17,7 @@
 > ︱**Proship/darkship**\
 > ︱People who hate regiments in public-chat ... right next to regiments.
 
-<div align="center>
-  
-<img height="100px" src="https://file.garden/adlwoUt2CUP8PpeM/Forest.png">
 
+<div align="center">
+<img height="max" src="https://file.garden/adlwoUt2CUP8PpeM/Forest.png">
 </div>
