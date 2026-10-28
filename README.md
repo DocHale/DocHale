@@ -1,4 +1,4 @@
-### $${\color{red}Recording Retrieved.}$$
+### $${\textcolor{#1A9AAD}Recording Retrieved.}$$
 <sup>28/10/20XX · 17:24 · Sector-B IF.</sup>
 
 ---
