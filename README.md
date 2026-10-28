@@ -17,4 +17,8 @@
 > ︱**Proship/darkship**\
 > ︱People who hate regiments in public-chat ... right next to regiments.
 
+<div align="center>
+  
 <img height="100px" src="https://file.garden/adlwoUt2CUP8PpeM/Forest.png">
+
+</div>
