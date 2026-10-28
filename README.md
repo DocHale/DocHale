@@ -25,3 +25,7 @@
 <div align="center">
 <img height="max" src="https://file.garden/adlwoUt2CUP8PpeM/Forest.png">
 </div>
+
+<div align="right">
+![](https://komarev.com/ghpvc/?username=dochale&color=1A9AAD&style=plastic&label=✙+Patients)
+</div>
